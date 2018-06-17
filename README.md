@@ -1,3 +1,3 @@
-# mihrundel.github.io
+# MishaRodionov.github.io
 Misha Rodionov
 rmisha666@mail.ru
